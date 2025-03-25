@@ -3,7 +3,6 @@
 - 🌱 I’m currently learning cybersecurity through SDSU Global Campus
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me skyyhubbard90@gmail.com
-- 😄 Pronouns: who cares 
 - ⚡ Fun fact: i love to cook 
 
 <!---
